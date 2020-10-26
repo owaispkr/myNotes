@@ -3,9 +3,8 @@
 **Alexandra Daddario** <br /> 
 **Rebecca Ferguson** <br />
 **Elizabeth Olsen** <br /> 
-**Marion Cotillard / Nina Dobrev** <br /> 
 **Rachael Taylor** <br /> 
-
+**Marion Cotillard / Nina Dobrev** <br />
 
 
 **EXCEL DATE FORMAT**
