@@ -3,7 +3,7 @@
 **Alexandra Daddario** <br /> 
 **Rebecca Ferguson** <br />
 **Elizabeth Olsen** <br /> 
-**Marion Cotillard** <br /> 
+**Marion Cotillard / Nina Dobrev** <br /> 
 **Rachael Taylor** <br /> 
 
 
