@@ -1,8 +1,8 @@
 # myNotes
 
 **Alexandra Daddario** <br /> 
-**Rebecca Ferguson** <br />
 **Elizabeth Olsen** <br /> 
+**Ana de Armas** <br />
 **Rachael Taylor** <br /> 
 **Marion Cotillard / Nina Dobrev** <br />
 
